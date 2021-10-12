@@ -2,7 +2,7 @@
 
 🐾 Trabalho atualmente na ufpe - com iniciação científica
 
-🍕 Desenvolvedor Full-stack
+🍕 Desenvolvedor Full stack
 
 🍳 Pronomes ele/dele
 

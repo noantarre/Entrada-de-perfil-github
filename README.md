@@ -1,8 +1,6 @@
 🤯 Meu Nome é Noan Tarré
 
-🐾 Trabalho atualmente na ufpe - com iniciação científica
-
-🍕 Desenvolvedor Full stack
+🍕 Desenvolvedor
 
 🍳 Pronomes ele/dele
 
